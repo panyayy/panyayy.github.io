@@ -1,1 +1,1 @@
-# panyayy.github.io
+# [panyayy.github.io](https://hoo.be/jinrjibk)
